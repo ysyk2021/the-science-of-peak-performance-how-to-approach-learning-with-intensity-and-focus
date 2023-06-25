@@ -1,4 +1,4 @@
-Introduction: Brief on How the Book Will Help Readers Develop a Mindset Towards Achieving Peak Performance in Learning
+Brief on How the Book Will Help Readers Develop a Mindset Towards Achieving Peak Performance in Learning
 ======================================================================================================================
 
 Welcome to "The Science of Peak Performance: How to Approach Learning with Intensity and Focus". This book is designed to help readers develop the mindset and habits necessary to achieve peak performance in learning. Whether you are a student, a professional, or simply someone who wants to improve their ability to learn and retain information, this book is for you.

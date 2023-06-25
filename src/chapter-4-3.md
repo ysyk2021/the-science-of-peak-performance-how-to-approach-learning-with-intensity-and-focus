@@ -1,5 +1,4 @@
-Chapter 3: Approaching Learning with Intensity and Focus: Strategies for Developing a Growth Mindset and Pursuing Deliberate Practice
-=====================================================================================================================================
+# Strategies for Developing a Growth Mindset and Pursuing Deliberate Practice
 
 In this chapter, we will explore strategies for developing a growth mindset and pursuing deliberate practice when approaching learning with intensity and focus.
 

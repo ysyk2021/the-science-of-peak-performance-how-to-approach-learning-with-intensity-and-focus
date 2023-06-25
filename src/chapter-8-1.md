@@ -1,5 +1,4 @@
-Chapter 7: Sustaining Peak Performance: The Importance of Sustaining Peak Performance in Learning Over the Long Term
-====================================================================================================================
+# The Importance of Sustaining Peak Performance in Learning Over the Long Term
 
 Introduction
 ------------

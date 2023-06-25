@@ -1,5 +1,4 @@
-Chapter 4: Developing a Learning Plan: Techniques for Setting Goals and Tracking Progress
-=========================================================================================
+# Techniques for Setting Goals and Tracking Progress
 
 Developing a learning plan is an essential component of achieving peak performance in learning. In order to effectively develop a learning plan, it is important to set specific goals and track progress towards those goals. In this chapter, we'll explore techniques for setting goals and tracking progress in your learning plan.
 

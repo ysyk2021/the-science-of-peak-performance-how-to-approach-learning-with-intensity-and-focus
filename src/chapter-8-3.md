@@ -1,5 +1,4 @@
-Chapter 7: Sustaining Peak Performance: Strategies for Developing a Growth Mindset and Pursuing Lifelong Learning
-=================================================================================================================
+# Strategies for Developing a Growth Mindset and Pursuing Lifelong Learning
 
 Introduction
 ------------

@@ -1,5 +1,4 @@
-Chapter 2: The Science of Learning: Strategies for Maximizing Retention and Recall Through Spaced Repetition and Active Recall
-==============================================================================================================================
+# Strategies for Maximizing Retention and Recall Through Spaced Repetition and Active Recall
 
 In this chapter, we will explore the science of learning and discuss strategies for maximizing retention and recall through spaced repetition and active recall.
 

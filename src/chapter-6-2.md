@@ -1,5 +1,4 @@
-Chapter 5: Managing Stress and Anxiety: Techniques for Reducing Stress and Improving Mental Health
-==================================================================================================
+# Techniques for Reducing Stress and Improving Mental Health
 
 Stress and anxiety can be major barriers to achieving peak performance. They can interfere with your ability to focus, learn, and retain information. In this chapter, we will explore techniques for managing stress and anxiety, so you can improve your mental health and approach learning with intensity and focus.
 

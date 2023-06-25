@@ -1,5 +1,4 @@
-Chapter 7: Sustaining Peak Performance: Techniques for Maintaining Motivation and Avoiding Burnout
-==================================================================================================
+# Techniques for Maintaining Motivation and Avoiding Burnout
 
 Introduction
 ------------
