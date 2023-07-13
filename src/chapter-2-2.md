@@ -1,4 +1,4 @@
-Chapter 3: Techniques for Cultivating a Mindset towards Peak Performance
+Techniques for Cultivating a Mindset towards Peak Performance
 ========================================================================
 
 Cultivating a mindset towards peak performance involves adopting a set of beliefs and attitudes that promote optimal learning outcomes. In this chapter, we'll explore techniques for cultivating a mindset towards peak performance in learning.

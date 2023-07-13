@@ -1,4 +1,4 @@
-Conclusion: Recap of the Key Takeaways from the Book
+Recap of the Key Takeaways from the Book
 ====================================================
 
 Throughout this book, we have explored a science-based approach to achieving peak performance in learning. By drawing on research from cognitive psychology, neuroscience, and education, we have provided readers with practical insights and techniques for maximizing retention and recall of information, staying motivated and disciplined throughout the learning process, and achieving mastery over a subject or skill.
