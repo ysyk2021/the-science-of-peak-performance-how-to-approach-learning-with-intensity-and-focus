@@ -8,5 +8,4 @@ Chapter 4 delves into the importance of managing stress and anxiety during perio
 
 Through this book, readers will learn how to manage their time effectively, reduce stress and anxiety, develop resilience, and more. The guidance provided in this book can be applied to students, professionals, or anyone looking to improve their learning abilities. With the practical advice and actionable steps provided in this book, readers will be able to optimize their learning potential and achieve success in academic and professional settings.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
