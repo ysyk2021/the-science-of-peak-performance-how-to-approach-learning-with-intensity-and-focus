@@ -8,5 +8,3 @@
 8. Are you tired of feeling overwhelmed and unproductive? Learn how to approach learning with intensity and focus with #TheScienceOfPeakPerformance.
 9. Ready to unlock your full potential and achieve success in your endeavors? Read #TheScienceOfPeakPerformance and discover the science behind peak performance.
 10. Don't settle for mediocrity in your learning and career. Read #TheScienceOfPeakPerformance and learn how to approach learning with intensity and focus to achieve peak performance.
-
-
