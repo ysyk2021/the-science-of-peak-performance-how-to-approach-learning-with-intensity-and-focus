@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [Explanation of the importance of peak performance in learning](chapter-1-1.md)
   - [Overview of the benefits of a science-based approach to learning](chapter-1-2.md)
-  - [Brief on how the book will help readers develop a mindset towards achieving peak performance in learning](chapter-1-3.md)
 - [Chapter 1: Understanding Peak Performance](chapter-2.md)
   - [Understanding what peak performance means for learning](chapter-2-1.md)
   - [Techniques for cultivating a mindset towards peak performance](chapter-2-2.md)

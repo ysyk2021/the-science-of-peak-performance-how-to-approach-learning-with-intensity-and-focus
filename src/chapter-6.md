@@ -1,9 +1,6 @@
 Chapter 5: Managing Stress and Anxiety
 ======================================
 
-Introduction
-------------
-
 Managing stress and anxiety is an essential part of achieving peak performance in learning. In this chapter, we will discuss the challenges of managing stress and anxiety during periods of intense learning, techniques for reducing stress and improving mental health, and strategies for developing coping mechanisms and maintaining balance during periods of high intensity learning.
 
 The Challenges of Managing Stress and Anxiety During Periods of Intense Learning
