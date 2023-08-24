@@ -1,5 +1,3 @@
-Chapter 2: The Science of Learning
-==================================
 
 Understanding the science of learning is essential to achieving peak performance. In this chapter, we will explore the importance of understanding the science of learning, techniques for developing effective study habits based on neuroscience research, and strategies for maximizing retention and recall through spaced repetition and active recall.
 

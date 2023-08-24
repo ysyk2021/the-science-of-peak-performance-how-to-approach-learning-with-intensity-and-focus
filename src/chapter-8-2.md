@@ -1,5 +1,3 @@
-Techniques for Maintaining Motivation and Avoiding Burnout
-=====================================================================
 
 In this chapter, we will explore a range of techniques for maintaining motivation and avoiding burnout while pursuing peak performance in learning. Sustaining long-term motivation is crucial for consistent progress and success, while preventing burnout ensures a healthy and sustainable learning journey. Let's delve into the effective strategies discussed in "The Science of Peak Performance: How to Approach Learning with Intensity and Focus."
 

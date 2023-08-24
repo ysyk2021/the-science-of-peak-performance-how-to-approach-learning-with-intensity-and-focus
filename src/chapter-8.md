@@ -1,5 +1,3 @@
-Chapter 7: Sustaining Peak Performance
-======================================
 
 In this chapter, we will explore the importance of sustaining peak performance in learning over the long term. We will discuss techniques for maintaining motivation and avoiding burnout, as well as strategies for developing a growth mindset and pursuing lifelong learning.
 

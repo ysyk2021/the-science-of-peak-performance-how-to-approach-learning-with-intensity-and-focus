@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 Recap of the Key Takeaways from the Book
 ----------------------------------------
@@ -25,5 +23,4 @@ Remember that achieving peak performance in learning is an ongoing process, and 
 To apply the strategies outlined in this book, readers should assess their strengths and weaknesses, develop a personalized study plan, utilize effective study strategies, manage time effectively, seek out feedback, practice self-care and manage stress and anxiety effectively, develop resilience, and pursue lifelong learning.
 
 Always remember to prioritize your mental health and well-being, and to seek out professional help if needed. With the right strategies and mindset, achieving peak performance in learning is within reach.
-
 

@@ -1,5 +1,3 @@
-Techniques for Developing Effective Study Habits Based on Neuroscience Research
-==========================================================================================
 
 In the journey towards peak performance in learning, developing effective study habits is crucial for optimal progress and achievement. By understanding the principles of neuroscience research, we can uncover strategies that enhance our ability to study effectively. In this chapter, we will explore techniques informed by neuroscience to develop effective study habits.
 

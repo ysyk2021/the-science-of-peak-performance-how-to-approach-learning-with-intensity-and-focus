@@ -1,5 +1,3 @@
-Techniques for Cultivating a Mindset Towards Peak Performance
-========================================================================
 
 In this chapter, we will explore powerful techniques for cultivating a mindset that supports peak performance in the learning process. Developing the right mental framework is essential for achieving optimal results and maximizing your learning potential. By implementing these techniques, you can cultivate a mindset that fosters intensity, focus, and ultimately, peak performance.
 

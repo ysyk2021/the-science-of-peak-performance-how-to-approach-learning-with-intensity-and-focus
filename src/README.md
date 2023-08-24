@@ -1,4 +1,3 @@
-# Introduction
 
 The ability to achieve peak performance in learning is essential for success in academic and professional settings. However, many individuals struggle with finding the right mindset and strategies to optimize their learning potential. This book, "The Science of Peak Performance: How to Approach Learning with Intensity and Focus" is designed to provide readers with practical advice and actionable steps to help them develop a mindset towards achieving peak performance in learning.
 

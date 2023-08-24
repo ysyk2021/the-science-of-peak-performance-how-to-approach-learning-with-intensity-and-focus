@@ -1,5 +1,3 @@
-Chapter 1: Understanding Peak Performance
-=========================================
 
 Peak performance is the ability to consistently perform at your best, even under challenging circumstances. In the context of learning, peak performance involves approaching learning with intensity and focus, and achieving mastery over a subject or skill. In this chapter, we will explore what peak performance means for learning, techniques for cultivating a mindset towards peak performance, and tips for identifying personal obstacles to achieving peak performance and overcoming them.
 

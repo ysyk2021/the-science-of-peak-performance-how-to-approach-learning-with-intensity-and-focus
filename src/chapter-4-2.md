@@ -1,5 +1,3 @@
-Techniques for Managing Distractions and Enhancing Concentration
-===========================================================================
 
 In this chapter, we will explore effective techniques for managing distractions and enhancing concentration. In today's fast-paced world, staying focused on our learning and performance goals can be challenging. However, by adopting these techniques, you can optimize your ability to concentrate, minimize distractions, and achieve peak performance.
 

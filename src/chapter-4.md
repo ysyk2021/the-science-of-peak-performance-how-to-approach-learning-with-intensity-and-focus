@@ -1,5 +1,3 @@
-Chapter 3: Approaching Learning with Intensity and Focus
-========================================================
 
 In this chapter, we will explore the role of intensity and focus in achieving peak performance in learning. We will also discuss techniques for managing distractions and enhancing concentration, as well as strategies for developing a growth mindset and pursuing deliberate practice.
 
