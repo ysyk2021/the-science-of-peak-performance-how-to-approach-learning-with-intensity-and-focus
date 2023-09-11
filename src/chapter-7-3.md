@@ -1,5 +1,4 @@
-Chapter: Strategies for Developing a Positive Attitude Towards Challenges and Adversity
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the strategies for developing a positive attitude towards challenges and adversity. We delve into the importance of embracing obstacles, provide techniques for reframing adversity, and discuss how to cultivate resilience and growth in the face of challenges.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Developing Effective Study Habits Based on Neuroscience Research
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the techniques for developing effective study habits based on neuroscience research. We delve into the importance of understanding how the brain learns, provide strategies for optimizing learning and retention, and discuss how to create an environment conducive to focused studying.
 
